@@ -14,4 +14,4 @@
 
 ### Habib Nascimento
 
-### [Linkedin](www.linkedin.com/in/habib-nascimento)
+### [Linkedin](https://www.linkedin.com/in/habib-nascimento/)
