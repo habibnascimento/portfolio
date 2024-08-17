@@ -14,4 +14,4 @@
 
 ### Habib Nascimento
 
-### [Linkedin](https://www.linkedin.com/school/aluracursos/)
+### [Linkedin](www.linkedin.com/in/habib-nascimento)
